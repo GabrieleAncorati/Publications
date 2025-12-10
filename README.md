@@ -1,2 +1,3 @@
 # Publications
-Repository to publish and share some 
+
+Repository to publish and share some content I made.
