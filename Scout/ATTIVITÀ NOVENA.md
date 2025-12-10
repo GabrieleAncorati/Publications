@@ -20,6 +20,7 @@ Vi chiediamo di mandare una **foto/video** della vostra promessa (sia promessa r
 
 **Poter scegliere non è da dare per scontato**, ci sono ancora tantissimi paesi e realtà in cui la libertà non c'è, in cui la gente viene oppressa per differenti motivi.
 Ne abbiamo prove concrete, spesso anche raccolte in indici come:
+
 * [**World Press Freedom Index**](https://rsf.org/en/index) stilato da Reporters Sans Frontières che quantifica la libertà di stampa di ogni paese
 * [**Human Freedom Index**](https://www.cato.org/search/category/human-freedom-index) redatto da Cato Institute che raccoglie le libertà personali, civili, ed economiche di ogni paese
 * [**Democracy Index**](https://www.eiu.com/n/campaigns/democracy-index-2024/) creato dal settimanale The Economist che classifica ciascun paese in "democrazie complete", "imperfette", "regimi ibridi" e "autoritari"
@@ -33,10 +34,10 @@ Il film non è d'azione, tutt'altro, ma il coraggio del protagonista va ben oltr
 Proprio come la scelta fatta dallo stesso regista [Jafar Panahi](https://it.wikipedia.org/wiki/Jafar_Panahi). Nonostante sia già stato condannato ed improgionato in diverse occasioni, decide di creare questo nuovo film a denuncia di quello che è diventato il paese che ama e che, purtroppo, gli
 è costato una nuova condanna.
 
-* [Lingua originale](https://youtu.be/9oHw2ubyWE4?si=tytv70SJKZWrvOI_)
+* [Lingua originale](https://youtu.be/9oHw2ubyWE4?si=tytv70SJKZWrvOI_)  
     [![Watch the video](https://img.youtube.com/vi/9oHw2ubyWE4/0.jpg)](https://www.youtube.com/watch?v=9oHw2ubyWE4)
 
-* [Italiano](https://youtu.be/nF04v-ze2Yc?si=bCnvnYB-YRu_6nmZ)
+* [Italiano](https://youtu.be/nF04v-ze2Yc?si=bCnvnYB-YRu_6nmZ)  
     [![Watch the video](https://img.youtube.com/vi/nF04v-ze2Yc/0.jpg)](https://youtu.be/nF04v-ze2Yc?si=bCnvnYB-YRu_6nmZ)
 
 ### Giovedì 18 Dicembre 2025
@@ -48,4 +49,3 @@ Questa foto è stata scattata a Ischia a fine route estiva, presso la comunità 
 La fortuna di vivere in un contesto in cui abbiamo una buona libertà di scelta, può portare a prendere la strada più facile, sbagliata ed egoistica come hanno fatto in passato questi ragazzi.
 
 Però, la forza che hanno dimostrato in seguito questi ragazzi decidendo di disintossicarsi, ci fa riflettere che **la libertà di scelta dovrebbe farci sentire la necessità di preferire la scelta giusta ed altruistica, anche se difficile**.
-   
