@@ -21,13 +21,13 @@ Vi chiediamo di mandare una **foto/video** della vostra promessa (sia promessa r
 **Poter scegliere non è da dare per scontato**, ci sono ancora tantissimi paesi e realtà in cui la libertà non c'è, in cui la gente viene oppressa per differenti motivi.
 Ne abbiamo prove concrete, spesso anche raccolte in indici come:
 
-* [**World Press Freedom Index**](https://rsf.org/en/index) stilato da Reporters Sans Frontières che quantifica la libertà di stampa di ogni paese
-* [**Human Freedom Index**](https://www.cato.org/search/category/human-freedom-index) redatto da Cato Institute che raccoglie le libertà personali, civili, ed economiche di ogni paese
-* [**Democracy Index**](https://www.eiu.com/n/campaigns/democracy-index-2024/) creato dal settimanale The Economist che classifica ciascun paese in "democrazie complete", "imperfette", "regimi ibridi" e "autoritari"
+* [**World Press Freedom Index**](https://rsf.org/en/index) stilato da Reporters Sans Frontières, quantifica la libertà di stampa di ogni paese
+* [**Human Freedom Index**](https://www.cato.org/search/category/human-freedom-index) redatto da Cato Institute, raccoglie le libertà personali, civili, ed economiche di ogni paese
+* [**Democracy Index**](https://www.eiu.com/n/campaigns/democracy-index-2024/) creato dal settimanale The Economist, classifica ciascun paese in "democrazie complete", "imperfette", "regimi ibridi" e "autoritari"
 
 Come spunto di oggi vi vogliamo lasciare il **trailer** del film *It was just an accident*, fresco vincitore della Palma d'Oro a Cannes.
 
-> Vahid, un meccanico azero, è stato imprigionato dalle autorità del regime iraniano. Durante il periodo di prigionia, fu interrogato e torturato da bendato e con la faccia rivolta al muro.  
+> Vahid, un meccanico azero, è stato imprigionato dalle autorità del regime iraniano. Durante il periodo di prigionia, fu interrogato e torturato da bendato con la faccia rivolta al muro.  
 Un giorno, un uomo di nome Eqbal entra nella sua officina. La protesi alla gamba dell'uomo produce un suono inconfondibile, uguale a quello che produceva la protesi di uno dei suoi aguzzini.
 
 Il film non è d'azione, tutt'altro, ma il coraggio del protagonista va ben oltre quello di tanti eroi e supereroi. **È il coraggio di chi compie una scelta difficile e per niente banale, in un paese dove la stessa libertà di scegliere è a rischio**.  
