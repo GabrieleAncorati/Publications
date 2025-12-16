@@ -16,7 +16,7 @@ Per questo pensavamo di cominciare questa nostra Novena 2025 da dove tutto è pa
 
 Vi chiediamo di mandare una **foto/video** della vostra promessa (sia promessa reppi che promessa lupi). Se non la trovate, dovete mandarci un video in cui la si recita in divisa!!!
 
-### Mercoledì 17 Dicembre 2025
+<!-- ### Mercoledì 17 Dicembre 2025
 
 **Poter scegliere non è da dare per scontato**, ci sono ancora tantissimi paesi e realtà in cui la libertà non c'è, in cui la gente viene oppressa per differenti motivi.
 Ne abbiamo prove concrete, spesso anche raccolte in indici come:
@@ -48,4 +48,4 @@ Questa foto è stata scattata a Ischia a fine route estiva, presso la comunità 
 
 La fortuna di vivere in un contesto in cui abbiamo una buona libertà di scelta, può portare a prendere la strada più facile, sbagliata ed egoistica come hanno fatto in passato questi ragazzi.
 
-Però, la forza che hanno dimostrato in seguito questi ragazzi decidendo di disintossicarsi, ci fa riflettere che **la libertà di scelta dovrebbe farci sentire la necessità di preferire la scelta giusta ed altruistica, anche se difficile**.
+Però, la forza che hanno dimostrato in seguito questi ragazzi decidendo di disintossicarsi, ci fa riflettere che **la libertà di scelta dovrebbe farci sentire la necessità di preferire la scelta giusta ed altruistica, anche se difficile**. -->
