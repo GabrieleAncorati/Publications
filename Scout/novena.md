@@ -8,15 +8,15 @@ in un mondo come quello di oggi avere la fortuna di poter scegliere, di avere la
 
 ## Le tre proposte
 
-### Martedì 16 Dicembre 2025
+<!-- ### Martedì 16 Dicembre 2025
 
 Nonostante siamo ragazzi (e un anziano) diversi, ognuno con le sue sfaccettature e
 *background*, adesso siamo qui perchè **tutti abbiamo scelto di fare parte di un'associazione, di una comunità**.
 Per questo pensavamo di cominciare questa nostra Novena 2025 da dove tutto è partito, dalla **Promessa Scout!**  
 
-Vi chiediamo di mandare una **foto/video** della vostra promessa (sia promessa reppi che promessa lupi). Se non la trovate, dovete mandarci un video in cui la si recita in divisa!!!
+Vi chiediamo di mandare una **foto/video** della vostra promessa (sia promessa reppi che promessa lupi). Se non la trovate, dovete mandarci un video in cui la si recita in divisa!!! -->
 
-<!-- ### Mercoledì 17 Dicembre 2025
+### Mercoledì 17 Dicembre 2025
 
 **Poter scegliere non è da dare per scontato**, ci sono ancora tantissimi paesi e realtà in cui la libertà non c'è, in cui la gente viene oppressa per differenti motivi.
 Ne abbiamo prove concrete, spesso anche raccolte in indici come:
@@ -40,7 +40,7 @@ Proprio come la scelta fatta dallo stesso regista [Jafar Panahi](https://it.wiki
 * [Italiano](https://youtu.be/nF04v-ze2Yc?si=bCnvnYB-YRu_6nmZ)  
     [![Watch the video](https://img.youtube.com/vi/nF04v-ze2Yc/0.jpg)](https://youtu.be/nF04v-ze2Yc?si=bCnvnYB-YRu_6nmZ)
 
-### Giovedì 18 Dicembre 2025
+<!-- ### Giovedì 18 Dicembre 2025
 
 ![Placeholder image](Images/IMG_8886.jpeg "Placeholder")
 
